@@ -1,6 +1,10 @@
-<p align="center"> hi im ellie or betty <p></p>
+<p align="center"> everyday with u is so utterly perfect ♡ <p></p>
 
-<p align="center"> femme unlabled lesbian <p></p>
+<div align="center">
+  
+<img width="300" height="300" alt="spazdam" src="https://files.catbox.moe/49u9cc.jpeg" />
+  
+</div>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
