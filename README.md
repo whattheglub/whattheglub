@@ -1,4 +1,4 @@
-<p align="center"> every day's an apple pie... જ⁀➴ <p></p>
+<p align="center"> every days an apple pie... ᨳ₊˚ <p></p>
 <div align="center">
   
 <img width="300" height="200" alt="spazdam" src="https://files.catbox.moe/580ljh.gif" />
@@ -6,7 +6,7 @@
 </div>
 
 <p align="center">
-𓎢𓎠𓎟 ꒰ ᧔ෆ᧓ ꒱ 𓎟𓎠𓎡
+𓎢𓎠𓎟 ꒰ ᧔♡᧓ ꒱ 𓎟𓎠𓎡
 <p align="center">
 hello! i have many names, but most call me ellie!
 <p align="center">
