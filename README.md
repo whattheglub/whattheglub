@@ -1,4 +1,4 @@
-<p align="center"> everyday with u is so utterly perfect  ^3^ <p></p>
+<p align="center">    my princess, my rainbow mother earth... ^3^   <p></
 
 <div align="center">
   
