@@ -1,8 +1,7 @@
 <p align="center"> my princess, my rainbow mother earth... જ⁀➴ <p></p>
-
 <div align="center">
   
-<img width="300" height="300" alt="spazdam" src="https://files.catbox.moe/49u9cc.jpeg" />
+<img width="300" height="200" alt="spazdam" src="https://files.catbox.moe/580ljh.gif" />
   
 </div>
 
