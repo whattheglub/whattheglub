@@ -1,4 +1,4 @@
-<p align="center">    my princess, my rainbow mother earth... ^3^   <p></
+<p align="center"> my princess, my rainbow mother earth... ᵔ <p></p>
 
 <div align="center">
   
